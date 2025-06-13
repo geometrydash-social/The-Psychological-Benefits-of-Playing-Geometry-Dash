@@ -11,3 +11,9 @@ Moreover, engaging with the game can help reduce stress. The immersive music and
 
 In summary, Geometry Dash isn’t just fun—it’s a mental workout that enhances focus, problem-solving, resilience, and stress relief, contributing positively to psychological well-being.
 
+---
+https://geometrydash-social.blogspot.com/
+
+https://linktr.ee/geometry.dash
+
+https://www.facer.io/u/geometrydash-social
